@@ -1,0 +1,1 @@
+Add privacy policy pages
